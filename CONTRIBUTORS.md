@@ -35,6 +35,8 @@ Khushi Agarwal(the-yellowumbrella)
 
 -[Gyaneshwari-PPatil](https://www.linkedin.com/in/gyaneshwari58)
 
+-[Om-Wagh](https://www.linkedin.com/in/om-wagh)
+
 -[@Akshata Gile](https://www.linkedin.com/in/akshata-gile-42a46b231)
 
 -[@MahiChrungoo](https://www.linkedin.com/in/mahi-chrungoo)
@@ -46,5 +48,6 @@ Khushi Agarwal(the-yellowumbrella)
 -[@Prajwal Korade](www.linkedin.com/in/prajwal-korade-43a323231)
 
 -[@rutvikghode](https://www.linkedin.com/in/rutvik-ghode-6a35a9231)
+
 
 
