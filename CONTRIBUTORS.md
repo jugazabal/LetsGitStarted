@@ -9,6 +9,8 @@
 
 -[@samarth-thosar](https://www.linkedin.com/in/samarth-thosar-076711234/) 
 
+-[@aastha9199]
+
 -[@Pranavjoshi](https://www.linkedin.com/in/pranav-joshi-168298231/)
 
 -[@SahilPatil](www.linkedin.com/in/sahil-patil-3aa186217)
