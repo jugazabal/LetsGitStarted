@@ -53,3 +53,5 @@ Khushi Agarwal(the-yellowumbrella)
 
 -[@nilaysole](https://www.linkedin.com/in/nilay-sole-4a42a8214/)
 
+-[@jugazabal](https://www.linkedin.com/in/juan-marcos-garcia-aranzabal-14630820/)
+
